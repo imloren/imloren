@@ -1,4 +1,4 @@
-<h2>Hi there，I'm lxj👋</h2>
+<h2>Hi there，I'm Loren 👋</h2>
 
 As long as have the place that leaf dance in the wind, the fire will burn 🔥
 
